@@ -1,0 +1,2 @@
+# RickgreyratMangaTranslation
+RickMangaTranslation
